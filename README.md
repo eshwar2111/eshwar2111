@@ -1,5 +1,5 @@
 # 💫 About Me:
-3rd year , VIT Chennai <br>Computer Science AI and ML<br>
+4th year , VIT Chennai <br>Computer Science AI and ML<br>
 
 
 ## 🌐 Socials:
